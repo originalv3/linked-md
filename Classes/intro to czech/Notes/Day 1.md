@@ -1,8 +1,9 @@
-
+# Other info
 words they made
 	robots 
 	pistol 
 	dollar
+	howister 
 
 stuff that originally came from czech
 	budweiser brewery
@@ -11,6 +12,7 @@ stuff that originally came from czech
 	nudity in film
 
 other stuff 
+	143 litres per person
 	90% of beer drunk un the us is pilsner style
 	no.1 in beer consumption
 	they call bread liquid water 
