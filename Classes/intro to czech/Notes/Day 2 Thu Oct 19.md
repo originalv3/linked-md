@@ -55,6 +55,7 @@ Jan Hus died in 1415 burned at the stake
 	heretic
 	martyr
 	defenestration - to throw out of a window
+	got his ideas from martin luther
 
 Jan Zizka and the hussites
 	never defeated in battle
