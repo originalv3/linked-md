@@ -23,4 +23,21 @@ millions of political prisoner were released from labor camps
 ## Alexander Dubcek
 socialism with a human face
 censorship ceased to exist
-tohusnads of politial prisoners were released
+thousands of politial prisoners were released
+
+# 20-21 August 1968
+20000 troops and 2000 tanks
+soviet union
+German democratic republic
+bulgaria
+Poland
+Hungary
+
+
+Jan Palach set himself on fire to protest invasion 
+
+# Normalization 1969-1989
+Alexander Dubcek kicked out of the communist party and made a forestry official
+Gustav husak replaced him as first secretaty
+censorship is re instituted
+things go back to the way they were before prague Spring
