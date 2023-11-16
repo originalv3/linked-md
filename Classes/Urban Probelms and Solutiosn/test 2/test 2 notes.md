@@ -132,3 +132,70 @@ Mitigation: Reducing climate change by reducing the GHG emission
 •  
 • Adaptation: Adjusting to climate change by reducing the risk of harmful effects of  
 climate change and/or making the most out of beneficial opportunities
+
+# Art and City
+## City Image
+Making paths (leading people to somewhere) and edges (preventing people to have  
+access to somewhere) clear can create more psychologically satisfying cities
+
+Edges:
+	Often Boundaries between two kinds of areas  
+	Linear elements not considered as paths, shores, railroad cuts, walls
+
+Districts:
+	Medium-to-large sections of the city with some common & identifiable characters  
+	Historic district, residential district, commercial district
+
+Nodes:  
+	strategic spots,  
+	primarily junctions, places of a break in transportation, concentrations,  
+	condensation of some use, enclosed square
+
+## Changing Strategies
+Traditionally: City planning and development focused on economic development,  
+creating jobs, increasing productivity and growth of the region  
+• More recently: Increased focus on People over companies  
+• New ideas, innovation, human capital  
+• Cities now need to attract high-quality human capital  
+• provide amenities, consumption opportunities, quality of life  
+• Art and Culture is one of the important strategies  
+• Higher quality of life  
+• Providing amenities: opera, gallery, diverse types of lifestyles  
+• Creative skills contribute to advertising, finance, public relations à boost economy
+
+# Smart City
+==effectiveness, efficiency, improved quality of life==
+
+Advantages
+	Broader range of activities, citizen-centric governance  
+	• More flexible in exploring and adjusting a variety of business and governance  
+models  
+	• Integrated physical design and development of infrastructure and buildings  
+	• Opportunity of employing open innovation techniques
+
+Disadvantages
+	Complicated policy agendas  
+	• Innovation is not guaranteed success  
+	• Slow progression
+
+bloomington
+	Bloomington, IN  
+• Smart Water Meters  
+• In 2020, the City of Bloomington Utilities (CBU) completed a yearlong project to  
+upgrade its metering infrastructure.  
+• Employees no longer need to visit homes and businesses to manually record  
+information every month.
+
+Active Aging  
+• The process of optimizing opportunities for health, participation and security in  
+order to enhance quality of life as people age.
+
+disability
+	7 Principles:  
+• Equitable Use –diverse abilities  
+• Flexibility in Use –a wide range of individual preferences and abilities  
+• Simple and Intuitive Use –easy to understand  
+• Perceptible Information –communicates necessary information effectively  
+• Tolerance for Error –minimizes hazards  
+• Low Physical Effort –minimizes fatigue  
+• Size and Space for Approach and Use – body size, posture, or mobility.
