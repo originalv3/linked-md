@@ -13,7 +13,6 @@ Victorious February 1948
 
 Josef Stalin 1878-1953
 	horrible leader that killed 20 million of his own people
-	
 
 # The Thaw
 de-stalinization in the 50's and 60's
