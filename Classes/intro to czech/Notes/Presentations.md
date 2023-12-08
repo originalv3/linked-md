@@ -36,3 +36,22 @@ style of art he is known for art nouvau
 czech prime minister phila
 2024 cut off oil form russia
 eastern country foreign come to get help from czech 
+
+# artwork 
+the style of art is surrealism and art novou
+
+hanging man done by chernin
+
+# czech and their beer
+when was the first pilsner beer created 1842
+
+czechs created the first pilzner and budweiser
+
+90% of beer in america is pilsner 
+
+35 beers a day hachek
+
+# bone church
+who designed interior Jan Santini Aichel
+how many peoples remains 4000
+when was the clay from golgotha spread across the cemetary? 1278
