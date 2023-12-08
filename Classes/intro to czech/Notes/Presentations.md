@@ -55,3 +55,17 @@ czechs created the first pilzner and budweiser
 who designed interior Jan Santini Aichel
 how many peoples remains 4000
 when was the clay from golgotha spread across the cemetary? 1278
+
+# inventors
+over 30 inventions made by czech people
+name 4 czech inventions
+
+# holidays
+when is christmas celebrated in czechia christmas events 
+
+when is czech independence day oct 28
+
+saint wencelas a patron saint of bohemia
+
+# czech sports 
+what are some of the challenges sports face | lack of infastructure and people have higher priorities
